@@ -68,7 +68,7 @@
 
 ## 📫 Connect With Me
 - 📧 Email: dhondiyalpankaj8@gmail.com
-- 💼 LinkedIn: (add your LinkedIn link here)
+- 💼 LinkedIn: (https://www.linkedin.com/in/pankaj-dhondiyal-866182318/)
 
 ---
 
